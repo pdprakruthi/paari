@@ -1,3 +1,5 @@
+[![MasterHead](https://scitechdaily.com/images/Left-Right-Brain-Signals.gif)](https://scitechdaily.com/images/Left-Right-Brain-Signals.gif)
+
 <h1 align="center">Hi 👋, I'm Prakruthi P D</h1>
 <h3 align="center">A passionate learner towards new innovation</h3>
 
